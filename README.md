@@ -1,0 +1,1 @@
+# AkilliK-t-phanecilik
